@@ -1,1 +1,1 @@
-# Game-zone-free online game 
+# Game-zone-free online game for kids 
